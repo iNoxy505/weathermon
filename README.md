@@ -1,0 +1,2 @@
+# weathermon
+Wooosh shoooo oooshh 🎐🪟💨🍃
